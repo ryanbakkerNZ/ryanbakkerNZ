@@ -9,5 +9,3 @@ Get In Touch
 Website - https://www.ryanbakker.nz
 
 Email - ryan@ryanbakker.nz
-
-Instagram - @ryanbakkernz
